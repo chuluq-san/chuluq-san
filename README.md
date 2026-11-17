@@ -1,2 +1,2 @@
-# chuluq-san
+# kalkun-id
 newbie
